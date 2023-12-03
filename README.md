@@ -1,1 +1,1 @@
-### Powered by [hddude.com](HdDude.com) 👋
+### Powered by [HdDude.com](https://www.hddude.com)
